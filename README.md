@@ -1,6 +1,6 @@
 # 狗狗加速官网地址
 
-最新地址：[dg1.top](https://www.dginv.click/#/register?code=jD7M7O2R)
+最新地址：[dg1.top](https://inv.dginv.click/#/register?code=jD7M7O2R)
 
 ## 狗狗加速介绍
 
